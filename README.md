@@ -1,2 +1,2 @@
 # newproject
- Learning new skills
+ Learning new skills so I can get better at this :) 
